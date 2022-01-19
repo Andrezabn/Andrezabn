@@ -6,5 +6,5 @@
 Designer / Design
 Graduated in Architecture and Urbanism
 Graduate in Information Technology Management
-Email: andrezabn@hotmail.com
+Email: andrezabn2022@gmail.com
 Cell: (85) 9.9793-5093 ...

@@ -1,6 +1,4 @@
-Apaixoada pela Tecnologia, em busca de conhecimento constantemente, me inscrevi na faculdade de Gestão da Tecnologia da informação, curso tecnólogo EAD pelo Centro Universitário Uifanor Wyden - EAD em Fortaleza.
-Aprendendo constantemente essa área, atualmente focada em cursos de Programador e Ux/Ui Design, para me engajar e tornar uma profissional para atender os requisitos do mercado da tecnologia.
-Estou disposto a fazer parte de uma equipe para adquirir o máximo de conhecimento para tarefas futuras e fazer o possível para e despertar novas habilidades.
+Apaixonada pela Tecnologia, em busca de conhecimento constantemente, me inscrevi na faculdade de Gestão da Tecnologia da informação, curso tecnólogo EAD pelo Centro Universitário Uifanor Wyden - EAD em Fortaleza. Aprendendo constantemente essa área, atualmente focado em cursos de Programador e Ux/Ui Design, para me engajar e tornar uma profissional para atender os requisitos do mercado da tecnologia. Estou disposta a fazer parte de uma equipe para adquirir o máximo de conhecimento para tarefas futuras e fazer o possível para e desenvolver novas habilidades.
 
 👀 I’m interested in learn technology ...
 - 🌱 I’m currently learning programming logic, data modeling and information security ...
